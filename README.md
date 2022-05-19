@@ -4,5 +4,5 @@
 📫 goodluckindustries@hotmail.com
 
 
-# goodluckindustries.github.io
+
 
